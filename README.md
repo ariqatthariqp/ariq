@@ -1,0 +1,2 @@
+# ariq
+Assalamu’alaikum
